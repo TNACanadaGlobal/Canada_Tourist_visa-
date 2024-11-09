@@ -22,7 +22,7 @@ Tourist Attractions and Activities ( Beautiful [ Canada_Tourist_visa](https://tn
 
 1.Maid of the Mist: This famous boat tour has been operating since the 1840s and allows tourists to experience the falls up close. Passengers don rain ponchos and get as close as possible to the base of the Horseshoe Falls, feeling the full force of the mist and the roaring sound of the water.
 
-2.The Journey of the Falls: Visitors can explore a series of tunnels behind Horseshoe Falls, emerging onto an observation platform close to the powerful waterfall. This unique experience offers a chance to see the falls from behind, adding to the sense of awe.
+2.The Journey of the Falls: [Canada Tourist Visa](images/canada_tourist_visa.png) can explore a series of tunnels behind Horseshoe Falls, emerging onto an observation platform close to the powerful waterfall. This unique experience offers a chance to see the falls from behind, adding to the sense of awe.
 3.Niagara SkyWheel: Located on the Canadian side, this Ferris wheel provides panoramic views of the falls, Niagara River, and surrounding areas. It’s a perfect way to capture memorable photographs and enjoy the scenery from above.
 4.Niagara Parks Butterfly Conservatory: Not far from the falls, this indoor conservatory houses over 2,000 tropical butterflies. It’s a peaceful place to explore and offers a contrast to the exhilarating experiences at the falls themselves.
 5.Observation Towers and Platforms: Both the American and Canadian sides feature observation towers and platforms where visitors can view the falls. The Skylon Tower on the Canadian side provides a 360-degree view and features a revolving restaurant for a scenic dining experience.

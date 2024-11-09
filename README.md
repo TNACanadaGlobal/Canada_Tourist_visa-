@@ -33,7 +33,8 @@ Daredevils have long been drawn to Niagara Falls as a place to test their courag
 
 Effects on the Environment and Preservation
 
-Because of its immense power, Niagara Falls has long been a preferred location for hydroelectric power generation. In fact, Nikola Tesla helped to harness the falls' energy in the late 1800s. The falls currently contribute significantly to the local electrical supply, supplying both Canada and the United States with electricity. A compromise between power generation and environmental conservation has been sought in order to maintain the falls' natural beauty for future generations.
+Because of its immense power,  [Niagara Falls](https://tnacanadaglobal.com/touristvisa) 
+ has long been a preferred location for hydroelectric power generation. In fact, Nikola Tesla helped to harness the falls' energy in the late 1800s. The falls currently contribute significantly to the local electrical supply, supplying both Canada and the United States with electricity. A compromise between power generation and environmental conservation has been sought in order to maintain the falls' natural beauty for future generations.
 
 When to Go to Niagara Falls ?
 

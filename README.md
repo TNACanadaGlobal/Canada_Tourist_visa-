@@ -3,7 +3,7 @@ A Canada Holiday Visa, officially known as a Canada Visitor Visa or Temporary Re
 People travel from all over the world to Canada to enjoy its breathtaking landscapes and natural wonders. Canada boasts breathtaking scenery, ranging from the wild heights of Alberta's Rocky Mountains to the azure waters of Lake Louise. British Columbia is home to bustling cities like Vancouver, verdant forests, and coastal beaches, while the east coast is home to the breathtaking cliffs of Nova Scotia and the picturesque red-sand beaches of Prince Edward Island.
 
 Canada becomes a paradise in the winter, filled with ski resorts, frozen lakes, and snow-capped trees. Canada's huge geography, distinctive animals, and different populations make it an absolutely stunning and fascinating place to visit.
-
+![Niagara_Falls](images/niagara_falls.png)
 The Wonders of Niagara Falls -
 
 Niagara Falls is one of the world’s most beautiful and attractive & natural phenomenal, drawing millions of tourists each year. Located on the border between Ontario, Canada, and New York, USA, Niagara Falls is actually a collection of three waterfalls:,That is the Bridal Veil Falls, the Horseshoe Falls,& the American Falls.Together, they form a stunning display of power and beauty that captivates visitors from around the world. Beyond just the falls themselves, the surrounding region offers a variety of attractions, history, and adventures.
@@ -14,7 +14,7 @@ The Falls: A Breakdown
 2.American Falls: Located entirely on the U.S. side, this waterfall is about 320 meters (1,050 feet) wide and 21–30 meters (69–98 feet) tall. Though it has a smaller flow compared to Horseshoe Falls, the American Falls is still awe-inspiring and unique due to its rock formations at the base.
 
 3.Bridal Veil Falls: The smallest of the three, Bridal Veil Falls sits next to American Falls and is separated from it by Luna Island. Its name comes from its delicate, veil-like appearance, and its charm complements the grandeur of the larger falls.
-
+![Canada Tourist Visa](images/canada_tourist_visa.png)
 The Origins and Formation of Niagara Falls
 Around 12,000 years ago, during the last Ice Age, the retreat of glaciers carved out the Great Lakes and the Niagara River. As the glaciers melted, massive volumes of water began to flow from Lake Erie to Lake Ontario, and the rushing water gradually wore down rock formations, creating the waterfalls we see today. Niagara Falls has been naturally eroding over thousands of years, slowly moving upriver.
 
